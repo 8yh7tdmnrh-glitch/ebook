@@ -1,1 +1,1 @@
-# PracticleGuideToEventManagement
+# Ebook
